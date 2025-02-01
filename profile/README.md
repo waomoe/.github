@@ -1,1 +1,1 @@
-<center><h3>https://wao.moe @ 2024</h3></center>
+<center><h3>https://wao.moe @ 2025</h3></center>
